@@ -1,1 +1,1 @@
-# [Projects](https://https://wmdanor.com/)
+# [Projects](https://wmdanor.com/)
